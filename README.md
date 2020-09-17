@@ -1,1 +1,2 @@
 # c-26-choco_chip_cookie
+A chocolate chip cookie is a drop cookie.The cookie dough is scooped and dropped onto a baking sheet. Drop cookies are typically made using the creaming method of mixing—butter and sugar are beaten together before egg and dry ingredients are added.
